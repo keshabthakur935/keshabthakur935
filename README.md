@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am currently studying<br>currently pursuing bca<br>looking for a data analysts job 
+I am currently pursuing BCA
 
 
 ## 🌐 Socials:
